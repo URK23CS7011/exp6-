@@ -1,2 +1,2 @@
-# exp6-
-this is exp6 for practise
+this is demian and m doing exp 6
+
